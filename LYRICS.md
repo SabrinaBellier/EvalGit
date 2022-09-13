@@ -80,3 +80,16 @@ D'esquives, des "shta-pow!" de putains de stonba<br>
 Laisse pas traîner ton fils<br>
 Si tu veux pas qu'il glisse<br>
 Qu'il te ramène du vice<br>
+
+### (Choeur)
+Laisse pas traîner ton fils<br>
+Si tu ne veux pas qu'il glisse<br>
+Qu'il te ramène du vice<br>
+Laisse pas traîner ton fils<br>
+Si tu veux pas qu'il glisse<br>
+
+Laisse pas traîner ton fils<br>
+Si tu ne veux pas qu'il glisse<br>
+Qu'il te ramène du vice<br>
+Laisse pas traîner ton fils<br>
+Si tu veux pas qu'il glisse<br>
