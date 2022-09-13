@@ -81,3 +81,19 @@ Laisse pas traîner ton fils<br>
 Si tu veux pas qu'il glisse<br>
 Qu'il te ramène du vice<br>
 
+### (Choeur)
+Laisse pas traîner ton fils<br>
+Si tu ne veux pas qu'il glisse<br>
+Qu'il te ramène du vice<br>
+Laisse pas traîner ton fils<br>
+Si tu veux pas qu'il glisse<br>
+
+Laisse pas traîner ton fils<br>
+Si tu ne veux pas qu'il glisse<br>
+Qu'il te ramène du vice<br>
+Laisse pas traîner ton fils<br>
+Si tu veux pas qu'il glisse<br>
+
+#### Source : LyricFind
+#### Songwriters: Bruno Lopes / Didier Morville / Fabrice Guion-Firmin
+#### Laisse pas traîner ton fils lyrics © Sony/ATV Music Publishing LLC
